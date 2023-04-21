@@ -28,6 +28,6 @@ We may update this Privacy Policy from time to time to reflect changes in our pr
 
 Contact Us
 
-If you have any questions or concerns about this Privacy Policy or our privacy practices, please contact us at [Insert Contact Email Address].
+If you have any questions or concerns about this Privacy Policy or our privacy practices, please contact us at rebootoken@gmail.com.
 
 By using the App, you acknowledge that you have read and understand this Privacy Policy and consent to the collection, use, and disclosure of your personal information as described herein.
